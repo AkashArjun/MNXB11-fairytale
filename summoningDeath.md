@@ -1,20 +1,21 @@
 Shopping List:
--baby that needs to be sacrificed.
--hair of the mother of the child
+- baby that needs to be sacrificed.
+- hair of the mother of the child
 - stone slabs from the ancient ruins of the indus valley civilization
--lots and lots of charcoal
+- lots and lots of charcoal
 - pure black silk blinding cord
--glass orb on a stand
+- glass orb on a stand
 - sharly cut bismth crystals in pyramid shape
 - steel cage
--a lot of phosphorescent powder and mica dust
--jar of ancient salt taken from the balck sea 
+- a lot of phosphorescent powder and mica dust
+- jar of ancient salt taken from the balck sea 
 - extremely sharp ceremonial dagger
 - the horn of a unicorn and its fresh blood contained in a jar kept out of sunlight
 - a crown of thorns of a cactus
 - Hourglass of Bone Dust
 - root of a tree struck by lightning
 - Mirror Shard of Polished Obsidian
+- the book of vishanti
 
 
 Mythological background on Death:
